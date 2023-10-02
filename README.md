@@ -7,4 +7,4 @@ para entra em ctt comigo
 
 . meu insta @ganassimjaqueline
 
-![](https://2.bp.blogspot.com/-uCu4mZstEBs/UJWwua1nvwI/AAAAAAAACjs/aiF0PBr9Kfg/s320/chuunibyou-demo-koi-ga-shitai-1-takanashi-rikka-finger-twirl1.gif)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F481040803945531322%2F&psig=AOvVaw2labr1czLDF8BgFAiBMcT8&ust=1696353585742000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCLiqmNrv14EDFQAAAAAdAAAAABB7)
